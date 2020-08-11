@@ -1,1 +1,1 @@
-# readme
+how is it
